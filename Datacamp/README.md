@@ -1,1 +1,0 @@
-All my Datacamp certifications
